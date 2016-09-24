@@ -14,4 +14,4 @@ But look at the plate on the plinth: the figure
 was established in 1993, the patina painted,
 
 artifice to be washed away in drops of sincerity.
-A statue of reversed temporality, to one day come alive.
+A statue of reversed temporality, to one day shine alive.
