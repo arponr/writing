@@ -4,8 +4,8 @@ did I decide my skin was best cloaked
 in stone-grey? I swear that my skin once shined
 
 like fresh copper, glinted in the pool under summer sun
-at my Greek friend George's house in 2002, at a party thrown
-because he was moving away, to Georgia, funnily,
+at my Greek friend George's house, in 2002, at a party
+thrown because he was moving away---to Georgia, funnily
 and sadly, though I didn't know so then.
 
 On Princeton's campus is a copper statue
