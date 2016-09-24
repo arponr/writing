@@ -4,13 +4,13 @@ that I walked to a well-worn bench,
 sat, and wondered at
 
 the sparks of sunlight, reflected
-brilliantly in angles, just
-for moments, in the modest peaks
+brilliantly in angles,
+just for moments, in the modest peaks
 of the Charles; and wondered,
 
-Do they see the other sparks,
+do they see the other sparks,
 the life they breathe
-together, into the water
+together, into the water,
 in those moments,
 before they return
 to the sky and sun?

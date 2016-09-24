@@ -12,5 +12,5 @@ vehicle which barely stops and then flows,
 onward, submerged in a viscous cavalcade.
 Surface and emerge, finally, at your destination.
 
-The night is dark red and pulsing. Come inside,
-welcome. This hotel is nestled at the heart of me.
+The night is dark red and pulsing.
+Come inside, welcome. This hotel is nestled at the heart of me.

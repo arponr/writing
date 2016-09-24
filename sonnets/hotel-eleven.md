@@ -11,7 +11,7 @@ Dear god, you are bleeding all over her baby-blue North Face.
 The neck snaps, the eyes freeze, mobility transferred to her
 iridium gaze, expressing and therefore evoking terror as it thuds down onto
 
-you need to react. You, who Like her so much you're bleeding, need a reaction.
-You, of course, laugh; double over, laughing.
-Watch her terror metamorphose in between eye-blinks: red, blue, black.
+You need to react. You, who Like her so much you're bleeding, need a reaction.
+You, of course, laugh; double over, laughing. Watch her
+terror metamorphose in between eye-blinks: red, blue, black.
 Decide, between mirroring eye-blinks: yes, of course, you hate her with all your heart.
