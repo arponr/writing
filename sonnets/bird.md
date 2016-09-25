@@ -5,8 +5,8 @@ of substructure beneath & within me---and that
 I am petrified of the volta, of the imminent side of the peak.
 
 Through the window I observe their lips & lives unfolding,
-and the window's reflection of me interleaved
-with leaves' shadows, rippling through them
+and the window's reflection of me interleaved with
+leaves' shadows, rippling through them
 as the tree limb my feet grip bobs in the night's wind.
 Their lips finally join
 
