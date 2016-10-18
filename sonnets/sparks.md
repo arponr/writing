@@ -1,5 +1,5 @@
 It was when I emptied myself,
-of mathematics, of irony, of myself,
+of deadlines, of mathematics, of myself,
 that I walked to a well-worn bench,
 sat, and wondered at
 
